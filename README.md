@@ -1,0 +1,1 @@
+![The Campaign emblem](campaign.jpeg)
